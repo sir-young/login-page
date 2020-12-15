@@ -12,4 +12,4 @@
 
 ## Contate-me
 
-🐦 @LordYng_ **|** 🤖 yng#6434
+🐦 @LordYng_ **|** 🤖 yng#6319
