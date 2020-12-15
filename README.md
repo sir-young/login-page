@@ -8,7 +8,7 @@
 
 ## Suporte
 
- Dúvidas? Entre na minha comunidade de programação, a [StackLab](https://discord.gg/stacklab)
+ Dúvidas? Entre na minha comunidade de programação, a [StackLab](https://discord.gg/UhEUW4h6mb)
 
 ## Contate-me
 
